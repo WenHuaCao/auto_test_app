@@ -1,0 +1,1 @@
+»·¾³python + appium + window + mumuÄ£ÄâÆ÷+uiautomatorviewerbat
